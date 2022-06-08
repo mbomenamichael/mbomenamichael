@@ -1,4 +1,4 @@
-Hi, I’m @mbomenamichael
+Hello, I’m @mbomenamichael
 
 I'm a computer science student at the University of Reading. Going into my 3rd Year in September 2022
 
